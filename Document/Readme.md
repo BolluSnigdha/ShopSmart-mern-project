@@ -1,3 +1,3 @@
 Final report of the project(Document)
 
-https://docs.google.com/document/d/146-2hs3cJgtKLK7eRaPXh7N50BbAxaeP/edit?usp=sharing&ouid=109506382114942519955&rtpof=true&sd=true
+https://drive.google.com/drive/folders/1DITf-URSaKH36s4ZMa_mrg-sgt1sY9Bj?usp=drive_link
